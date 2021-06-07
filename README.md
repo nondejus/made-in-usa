@@ -1,1 +1,9 @@
-# agfa-phoenix-computer-to-plate-biinenkant-afwerking-USA-manufactured
+_______________
+| made in usa |
+---------------
+
+'agfa phoenix computer-to-plate' 
+
+onafgewerkte-biinenkant 
+
+
